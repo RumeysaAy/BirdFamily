@@ -32,7 +32,6 @@ Sonuç: Kuşlu Bulut Oyunu, eğitici ve eğlenceli bir oyun olarak çocuklara sa
 
 
 195541064 - İbrahim Erdem Ergenç
-
 205542008 – Rumeysa Ay
 
 
